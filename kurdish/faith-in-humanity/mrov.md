@@ -1,1 +1,3 @@
-بۆ بڕواهێنانەوە بە مرۆڤایەتی کلیک [کلیک لێرە بکە](https://www.youtube.com/watch?v=i-Qj7WLRqyQ)
+بۆ بڕواهێنانەوە بە مرۆڤایەتی کلیک [کلیک لێرە بکە](https://www.youtube.com/watch?v=i-Qj7WLRqy
+
+ez servet, ez li biliseme
